@@ -2,7 +2,7 @@
 <img align="center" img width="525" alt="lala" src="https://files.catbox.moe/4p6t6l.png"/></br>
 <img align="center" img width="525" alt="lala" src="https://files.catbox.moe/q6ia1w.png"/></br>
   </br>
-<img src="https://komarev.com/ghpvc/?username=faelinnea-username&color=111111&style=round&label=❛❛+you'll+run+away,+❜❜&abreviated=true"></br>
+<img src="https://komarev.com/ghpvc/?username=cleodecroux-username&color=111111&style=round&label=❛❛+you'll+run+away,+❜❜&abreviated=true"></br>
 </br>
 𓏵　　linnea　　𓏲𝄢　　cyrene</br>
 ✚𓈒 ᴗ)　　　❛❛ and i'll catch up slowly. ❜❜</br>
