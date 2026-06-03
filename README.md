@@ -1,16 +1,13 @@
-## Hi there 👋
-
-<!--
-**faelinnea/faelinnea** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+<img align="center" img width="525" alt="lala" src="https://files.catbox.moe/4p6t6l.png"/></br>
+<img align="center" img width="525" alt="lala" src="https://files.catbox.moe/q6ia1w.png"/></br>
+  </br>
+<img src="https://komarev.com/ghpvc/?username=faelinnea-username&color=111111&style=round&label=❛❛+you'll+run+away,+❜❜&abreviated=true"></br>
+</br>
+𓏵　　linnea　　𓏲𝄢　　cyrene</br>
+✚𓈒 ᴗ)　　　❛❛ and i'll catch up slowly. ❜❜</br>
+she　doll⠀　　𓉳　　aspd + autism</br>
+  linnea & cyrene irl 　 ໒꒱ 　 yumeshipper </br>
+  </br>
+<img align="center" img width="525" alt="i love you angel" src="https://files.catbox.moe/43wpfx.png"/></br>
+</div>
