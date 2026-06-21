@@ -4,7 +4,7 @@
   </br>
 <img src="https://komarev.com/ghpvc/?username=cleodecroux-username&color=ECBAB2&style=round&label=❛❛+you'll+run+away,+❜❜&abreviated=true"></br>
 </br>
-𓏵　　linnea　　𓏲𝄢　　cyrene</br>
+𓏵　　linnea　　𓏲𝄢　　cola</br>
 ✚𓈒 ᴗ)　　　❛❛ and i'll catch up slowly. ❜❜</br>
 she　doll⠀　　𓉳　　aspd + autism</br>
   linnea & cyrene irl 　 ໒꒱ 　 yumeshipper </br>
