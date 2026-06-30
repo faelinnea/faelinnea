@@ -9,5 +9,8 @@
 she　doll⠀　　𓉳　　aspd + autism</br>
   linnea & cyrene irl 　 ໒꒱ 　 18 yrs </br>
   </br>
+  join my Amphoreus-themed social server server! </br>
+  https://discord.gg/4ndWUPMfeT
+  </br>
 <img align="center" img width="525" alt="i love you angel" src="https://files.catbox.moe/43wpfx.png"/></br>
 </div>
