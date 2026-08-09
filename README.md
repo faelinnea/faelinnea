@@ -7,7 +7,7 @@
 𓏵　　linnea　　𓏲𝄢　　cola</br>
 ✚𓈒 ᴗ)　　　❛❛ and i'll catch up slowly. ❜❜</br>
 she　doll⠀　　𓉳　　aspd + autism</br>
-  linnea & cyrene irl 　 ໒꒱ 　 18 yrs </br>
+  linnea & venti irl 　 ໒꒱ 　 18 yrs </br>
   </br>
   join my Amphoreus-themed social server! </br>
   https://discord.gg/4ndWUPMfeT
