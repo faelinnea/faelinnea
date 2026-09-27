@@ -4,13 +4,11 @@
   </br>
 <img src="https://komarev.com/ghpvc/?username=cleodecroux-username&color=ECBAB2&style=round&label=❛❛+you'll+run+away,+❜❜&abreviated=true"></br>
 </br>
-𓏵　　linnea　　𓏲𝄢　　cola</br>
+𓏵　　linnea　　𓏲𝄢　　varesa</br>
 ✚𓈒 ᴗ)　　　❛❛ and i'll catch up slowly. ❜❜</br>
 she　doll⠀　　𓉳　　aspd + autism</br>
-  linnea & venti irl 　 ໒꒱ 　 18 yrs </br>
+  linnea & varesa irl 　 ໒꒱ 　 18 yrs </br>
   </br>
-  join my Amphoreus-themed social server! </br>
-  https://discord.gg/4ndWUPMfeT
-  </br>
+  
 <img align="center" img width="525" alt="i love you angel" src="https://files.catbox.moe/43wpfx.png"/></br>
 </div>
